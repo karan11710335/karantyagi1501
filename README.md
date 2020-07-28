@@ -10,3 +10,8 @@ I'm a software engineer who is passionate about making open-source more accessib
 * 📫 Box: Need Contributers On Cloud Project.
 * 😄 Pronouns: He/him
 * 🎮 Fun fact: I love playing Games and writing shayri !
+
+
+# How to reach me 📫:
+
+* Sharing updates on LinkedIn 💼
